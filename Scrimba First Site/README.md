@@ -1,4 +1,3 @@
-# co4fc422c91f0c23d86358724
 
 ## About Scrimba
 
